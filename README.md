@@ -1,1 +1,0 @@
-# timothytuckerr.github.io
